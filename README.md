@@ -1,1 +1,0 @@
-# rishabh-neeshath.github.io
